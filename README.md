@@ -1,1 +1,1 @@
-# BruzCSE110
+# Bruce's User Page
